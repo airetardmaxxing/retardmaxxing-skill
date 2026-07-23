@@ -12,7 +12,7 @@ It belongs to the "-maxxing" family (looksmaxxing, gymmaxxing) but is a meta-tur
 
 ## Origin
 
-Coined and popularized by YouTuber Elisha Long (~251k subscribers, "High Thumos Men's Group"). Went viral late 2025 on TikTok and X, hit mainstream discourse early 2026. Marc Andreessen endorsed it on an a16z podcast in March 2026 ("he's like my new life coach"), drawing criticism from Paul Graham and Seth Bannon and agreement from Elon Musk.
+Earliest documented use: September 2018 on Looksmax.org forums. Popularized as a philosophy by YouTuber Elisha Long (~251k subscribers, "High Thumos Men's Group") starting September 2025. Went viral late 2025 on TikTok and X, hit mainstream discourse early 2026. Marc Andreessen endorsed it on an a16z podcast in March 2026 ("he's like my new life coach"), drawing criticism from Paul Graham and Seth Bannon and agreement from Elon Musk.
 
 Signature phrases:
 
